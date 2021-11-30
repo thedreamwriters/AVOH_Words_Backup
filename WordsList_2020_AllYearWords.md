@@ -69,6 +69,7 @@ Vision (Satwinder Simone Isser)
 Boundaries (Alenka Tercic)
 
 Through. With a very distinct sense of movement accompanying it.(Talana Hargreaves)
+
 Healing (Joanne Feather)
 
 Work. Specifically finding joy in whatever work you do. There's a very Zen sense to it, so you may also want to explore some Zen meditation practices. (Amanda Radcliffe)
