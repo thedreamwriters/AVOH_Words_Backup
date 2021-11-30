@@ -118,8 +118,8 @@ https://www.facebook.com/gwynne.montgomery/posts/10228050809556625
 
 DEC 2021 Shadow Words (Village Word: )
 
-
+https://www.facebook.com/gwynne.montgomery/posts/10228051575735779
 
 DEC 2021 Business Words
 
-
+https://www.facebook.com/gwynne.montgomery/posts/10228052403596475
