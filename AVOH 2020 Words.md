@@ -2,8 +2,8 @@
 
 YEAR WORDS 2020 (Village Word: Connection) 
 
-https://www.facebook.com/gwynne.montgomery/posts/10221762660956840
-[Word List Archive](WordsList_2020_AllYearWords.md)
+* https://www.facebook.com/gwynne.montgomery/posts/10221762660956840
+* [Word List Archive](WordsList_2020_AllYearWords.md)
 
 JANUARY 2020 (Village Word: Organization)
 
