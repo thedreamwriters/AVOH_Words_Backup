@@ -112,13 +112,13 @@ NOV 2021 Business Words
 
 https://www.facebook.com/gwynne.montgomery/posts/10227800913349376
 
-DEC 2021 Words (Village Word: )
+DEC 2021 Words (Village Word: Action )
 
 https://www.facebook.com/gwynne.montgomery/posts/10228050809556625
 
 [Words List Archive](WordsList_2021_December_Words.md)
 
-DEC 2021 Shadow Words (Village Word: )
+DEC 2021 Shadow Words (Village Word: Misunderstanding)
 
 https://www.facebook.com/gwynne.montgomery/posts/10228051575735779
 
