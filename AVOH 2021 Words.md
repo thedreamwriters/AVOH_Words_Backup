@@ -112,6 +112,8 @@ NOV 2021 Business Words
 
 https://www.facebook.com/gwynne.montgomery/posts/10227800913349376
 
+[Words List Archive](WordsList_2021_November_Business_Words.md)
+
 DEC 2021 Words (Village Word: Action )
 
 https://www.facebook.com/gwynne.montgomery/posts/10228050809556625
