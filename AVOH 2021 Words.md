@@ -122,6 +122,8 @@ DEC 2021 Shadow Words (Village Word: Misunderstanding)
 
 https://www.facebook.com/gwynne.montgomery/posts/10228051575735779
 
+[Words List Archive](WordsList_2021_December_Shadow_Words.md)
+
 DEC 2021 Business Words
 
 https://www.facebook.com/gwynne.montgomery/posts/10228052403596475
