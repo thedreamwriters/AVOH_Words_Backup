@@ -87,3 +87,5 @@ Identity (Briar Harvey)
 Luck (Erin Caudell)
 
 Renewal (Byron Magnavacca)
+
+Pleasure (Shannon Reid)
