@@ -116,6 +116,8 @@ DEC 2021 Words (Village Word: )
 
 https://www.facebook.com/gwynne.montgomery/posts/10228050809556625
 
+[Words List Archive](WordsList_2021_December_Words.md)
+
 DEC 2021 Shadow Words (Village Word: )
 
 https://www.facebook.com/gwynne.montgomery/posts/10228051575735779
