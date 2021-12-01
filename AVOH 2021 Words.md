@@ -102,32 +102,36 @@ https://www.facebook.com/gwynne.montgomery/posts/10227615092143962
 
 NOV 2021 Words (Village Word: Support)
 
-https://www.facebook.com/gwynne.montgomery/posts/10227789830232305
+* https://www.facebook.com/gwynne.montgomery/posts/10227789830232305
 
+* [Words List Archive](WordsList_2021_November_Words.md)
+* 
 NOV 2021 Shadow Words (Village Word: Abandonment )
 
-https://www.facebook.com/gwynne.montgomery/posts/10227792230092300
+* https://www.facebook.com/gwynne.montgomery/posts/10227792230092300
+
+* [Words List Archive](WordsList_2021_November_Shadow_Words.md)
 
 NOV 2021 Business Words
 
-https://www.facebook.com/gwynne.montgomery/posts/10227800913349376
+* https://www.facebook.com/gwynne.montgomery/posts/10227800913349376
 
-[Words List Archive](WordsList_2021_November_Business_Words.md)
+* [Words List Archive](WordsList_2021_November_Business_Words.md)
 
 DEC 2021 Words (Village Word: Action )
 
-https://www.facebook.com/gwynne.montgomery/posts/10228050809556625
+* https://www.facebook.com/gwynne.montgomery/posts/10228050809556625
 
-[Words List Archive](WordsList_2021_December_Words.md)
+* [Words List Archive](WordsList_2021_December_Words.md)
 
 DEC 2021 Shadow Words (Village Word: Misunderstanding)
 
-https://www.facebook.com/gwynne.montgomery/posts/10228051575735779
+* https://www.facebook.com/gwynne.montgomery/posts/10228051575735779
 
-[Words List Archive](WordsList_2021_December_Shadow_Words.md)
+* [Words List Archive](WordsList_2021_December_Shadow_Words.md)
 
 DEC 2021 Business Words
 
-https://www.facebook.com/gwynne.montgomery/posts/10228052403596475
+* https://www.facebook.com/gwynne.montgomery/posts/10228052403596475
 
-[Words List Archive](WordsList_2021_December_Business_Words.md)
+* [Words List Archive](WordsList_2021_December_Business_Words.md)
