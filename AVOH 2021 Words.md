@@ -127,3 +127,5 @@ https://www.facebook.com/gwynne.montgomery/posts/10228051575735779
 DEC 2021 Business Words
 
 https://www.facebook.com/gwynne.montgomery/posts/10228052403596475
+
+[Words List Archive](WordsList_2021_December_Business_Words.md)
