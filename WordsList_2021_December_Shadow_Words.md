@@ -1,4 +1,8 @@
 2021 December Shadow Words
 
-Village: 
+Village: Misunderstanding 
+
+Avoidance (Gwynne Michele)
+
+
 
