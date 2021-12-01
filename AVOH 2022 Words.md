@@ -1,6 +1,6 @@
 2022 
 
-YEAR WORDS 2022:
+YEAR WORDS 2022 (Village Word: )
 
 JAN 2022 Words (Village Word: )
 
