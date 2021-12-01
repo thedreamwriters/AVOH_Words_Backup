@@ -1,6 +1,8 @@
 2021 December Words
 
-Village Word: 
+Village Word: Action
+
+Reflection (Gwynne Michele)
 
 Expand (Renata Palka)
 
