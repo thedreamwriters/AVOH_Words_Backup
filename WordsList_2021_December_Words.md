@@ -89,3 +89,7 @@ Luck (Erin Caudell)
 Renewal (Byron Magnavacca)
 
 Pleasure (Shannon Reid)
+
+Dream (Cindy O'Malley)
+
+Harmony (Patti Thomas)
