@@ -46,7 +46,7 @@ Laughter (Morgan Battista)
 
 Artistry (Erica Cosminsky Edwards)
 
-Skill (Riley Cosminsky Edwards)
+Skill (Riley Cosminsky)
 
 Transformation (Elpida Bauman)
 
