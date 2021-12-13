@@ -1,6 +1,7 @@
 2022 
 
 YEAR WORDS 2022 (Village Word: )
+https://www.facebook.com/gwynne.montgomery/posts/10228133736869756
 
 JAN 2022 Words (Village Word: )
 
