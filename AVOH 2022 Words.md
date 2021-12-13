@@ -1,7 +1,8 @@
 2022 
 
 YEAR WORDS 2022 (Village Word: )
-https://www.facebook.com/gwynne.montgomery/posts/10228133736869756
+* https://www.facebook.com/gwynne.montgomery/posts/10228133736869756
+* [Words List Archive](WordsList_2022_AllYearWords.md)
 
 JAN 2022 Words (Village Word: )
 
