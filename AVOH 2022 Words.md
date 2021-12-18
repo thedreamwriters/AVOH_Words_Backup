@@ -1,6 +1,6 @@
 2022 
 
-YEAR WORDS 2022 (Village Word: )
+YEAR WORDS 2022 (Village Word: Compassion)
 * https://www.facebook.com/gwynne.montgomery/posts/10228133736869756
 * [Words List Archive](WordsList_2022_AllYearWords.md)
 
