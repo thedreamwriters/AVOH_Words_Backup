@@ -4,11 +4,12 @@ YEAR WORDS 2022 (Village Word: Compassion)
 * https://www.facebook.com/gwynne.montgomery/posts/10228133736869756
 * [Words List Archive](WordsList_2022_AllYearWords.md)
 
-JAN 2022 Words (Village Word: )
-
+JAN 2022 Words (Village Word: Identity)
+* https://www.facebook.com/gwynne.montgomery/posts/10228224566980452
 JAN 2022 Shadow Words (Village Word: )
-
+* https://www.facebook.com/gwynne.montgomery/posts/10228224566980452
 JAN 2022 Business Words
+* https://www.facebook.com/gwynne.montgomery/posts/10228229720629290
 
 FEB 2022 Words (Village Word: )
 
